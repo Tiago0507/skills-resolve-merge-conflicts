@@ -1,3 +1,3 @@
-# References
+Hello, I'm doing my own conflic!
+Yeeesssssss!
 
-* octocat 1 😈
